@@ -11,7 +11,7 @@ What's the prize:
 
 ** Terms and Conditions applies
 
-[WIP ](https://www.facebook.com/groups/135059897174198/)
+[Status: **WIP** ](https://www.facebook.com/groups/135059897174198/)
 
 **Developers**
 - Dipen Lama
